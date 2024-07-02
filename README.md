@@ -1,6 +1,6 @@
-# 万城官网 万城专线官网最新入口地址
+# 万城官网 万城专线官网最新入口地址 + 最新优惠码
 
-最新地址：[vc-vcity.com](https://vc01.vc-vcity.com/#/register?code=QVGTq85j)
+最新地址：[link-vc.com](https://portal.link-vc.com/#/register?code=QVGTq85j)
 
 > 万城网络专线机场跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 > 另外没有啥绝对好坏，一线机场也会炸，小机场也可能岁月静好。
@@ -16,9 +16,9 @@
 
 专属88折万城专线优惠码: [9527](https://xuv.cc/out/wanc)
 
-85折优惠码： [51vcity85](https://xuv.cc/out/wanc)（适用：半年付及以下，流量包适用）
+8折优惠码： [51vcity80](https://xuv.cc/out/wanc)（适用：半年付及以下，流量包适用）
 
-75折优惠码：[51vcity75](https://xuv.cc/out/wanc)（适用：年付及以上，流量包不算年付）
+9折优惠码：[51vcity90](https://xuv.cc/out/wanc)（适用：年付及以上，流量包不算年付）
 
 ## 万城网络价格
 
