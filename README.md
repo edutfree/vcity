@@ -1,8 +1,13 @@
 # 万城 V-city 万城网络官网 万城专线官网最新入口地址 + 最新优惠码
 
-最新地址：[wc-yz.com](https://port01.wc-yz.com/#/register?code=QVGTq85j)
+最新地址：[https://user.vcsite01.com](https://user.vcsite01.com/#/register?code=QVGTq85j)
+
+or 
+
+[自动跳转](https://xuv.cc/out/wanc)
 
 > 万城网络专线机场跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
+> 
 > 另外没有啥绝对好坏，一线机场也会炸，小机场也可能岁月静好。
 
 ## 万城 V-city 万城网络介绍
