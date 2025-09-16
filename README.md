@@ -1,17 +1,12 @@
-# 万城官网 万城V-city最新入口地址 + 优惠码
+# 万城网络官网地址
 
-最新地址：[https://user.vcsite01.com](https://user.vcsite01.com/#/register?code=QVGTq85j)
-
-or 
-
-[自动跳转](https://xuv.cc/out/wanc)
+v-city最新地址：[vcsite01.com](https://vc-gate2.com/?code=QVGTq85j)
 
 ## 万城官网 V-city介绍
 
-万城网络，一家运营在温哥华的IEPL全专线高端机。ChatGPT，TikTok，Netflix、Hulu、HBO、TVB、Happyon、AbemaTV 等流媒体稳定解锁。
+万城网络，一家运营在温哥华的IEPL全专线高端加速器。ChatGPT，TikTok，Netflix、Hulu、HBO、TVB、Happyon、AbemaTV 等流媒体稳定解锁。
 
-万城官网专线节点覆盖30多个国家和地区，包括：香港、台湾、美国、日本、新加坡、马来西亚、菲律宾、韩国、印度、澳大利亚、以色列、加拿大、墨西哥、阿根廷、巴西、智利、英国、法国、德国、西班牙、瑞典、意大利、荷兰、波兰、南非、土耳其、新西兰、泰国等地区。
-
+vcity万城专线节点覆盖30多个国家和地区，包括：香港、台湾、美国、日本、新加坡、马来西亚、韩国、印度、澳大利亚、加拿大、阿根廷、巴西、英国、法国、德国、瑞典、意大利、土耳其、新西兰、泰国等地区。
 
 ## 万城官网 万城 V-city优惠码
 
